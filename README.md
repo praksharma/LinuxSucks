@@ -7,5 +7,5 @@ Few important terms that we devised between 2022-2023:
 * Freetard: http://freetard.urbanup.com/16037836
 * FOSS-gandists: Similar to religious conversion but with fake promises.
 
-Please visit, [r/linuxsucks](https://new.reddit.com/r/linuxsucks/) to see Loonixtard whining in agony.
+Please visit, [r/linuxsucks](https://new.reddit.com/r/linuxsucks/) to see Loonixtards whining in agony.
 
